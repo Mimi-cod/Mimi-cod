@@ -2,7 +2,7 @@
 - 👀 I’m interested in codage and hacking
 - 🌱 I’m currently learning imformatic
 - 💞️ I’m looking to collaborate on not much
-- 📫 How to reach me my teacher
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: not much
 
